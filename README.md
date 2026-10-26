@@ -7,4 +7,4 @@ Passionate about mathematical modeling, actuarial science, data analysis, and pr
 
 ## Connect with Me
 - **LinkedIn:** [linkedin.com/in/ilyas-el-haichami](https://www.linkedin.com/in/ilyas-el-haichami)
-- **Email:** [ilyas.el.haichami@ulb.be](mailto:ilyas.el.haichami@ulb.be)
+- **Email:** [ielhaichami@gmail.com](mailto:ielhaichami@gmai.com)
